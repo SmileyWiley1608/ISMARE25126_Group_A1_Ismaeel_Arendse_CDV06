@@ -1,3 +1,3 @@
-here is the link to my google drive with my CDV06 and Example Cover letter
-
 https://drive.google.com/drive/folders/1O9S1BhPUa5Z2MEMVmXK4OkzjzUFIw_UA?usp=drive_link
+
+updated link
